@@ -1,1 +1,0 @@
-# SkyRace-White-Paper
